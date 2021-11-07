@@ -10,6 +10,4 @@ BigOpenWorld is sponsored by the following companies / projects :
 
 _______
 
-Want to become a partner or chat with us ? Join our [discord](https://discord.gg/dQCNd2FdYs)
-
-This community is 🇫🇷 and 🇺🇸
+Want to become a partner or chat with us ? Join our [discord](https://discord.gg/dQCNd2FdYs) (This community is 🇫🇷 and 🇺🇸)
